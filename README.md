@@ -1,2 +1,2 @@
 # CV_DS_Fofana
-Just in case you want to know better about me.
+Just in case you want to know more about my background.
